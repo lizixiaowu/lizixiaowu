@@ -1,6 +1,4 @@
 ## Hi there 👋
-## Bonjour 👋
-## 你好 👋
 
 ## 👋 About Me / À propos / 自我介绍
 
